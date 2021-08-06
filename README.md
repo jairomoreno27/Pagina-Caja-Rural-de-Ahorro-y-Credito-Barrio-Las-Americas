@@ -6,13 +6,14 @@ Las Cajas Rurales de Ahorro y Crédito (CRAC) se definen como entidades privadas
 
 Las Cajas Rurales pueden constituirse en cualquier lugar del territorio nacional, en forma de Cajas Comunales o Cajas Regionales; el nombre o denominación social de cada una deberá seguir a la frase “Caja de Ahorro y Crédito Rural”. 
 
-La figura de Cajas Rurales, se enuncia por primera vez en la Ley de Modernización y Desarrollo del Sector Agrícola, promulgada en año de 1992. Posteriormente en el año de 1993 se emite una Ley específica a través del Acuerdo 201 – 93 para la creación de Cajas de Ahorro y Crédito Rural. Sin embargo las Cajas Rurales que se han constituido surgieron por iniciativa de las organizaciones comunitarias de base y operan bajo sus propios esquemas. 
+La figura de Cajas Rurales, se enuncia por primera vez en la Ley de Modernización y Desarrollo del Sector Agrícola, promulgada en año de 1992. Posteriormente en el año de 1993 se emite una Ley específica a través del Acuerdo 201 – 93 para la creación de Cajas de Ahorro y Crédito Rural. Sin embargo las Cajas Rurales que se han constituido surgieron por iniciativa de las organizaciones comunitarias de base y operan bajo sus propios esquemas. ![Caja Rural de Ahorro y Crédito Las Américas, S  A  C  - Logo](https://user-images.githubusercontent.com/88556143/128580423-ceeda7fe-5d5a-466b-8a10-b527c86f26a2.png)
+
 
 Algunas características sobresalientes del sistema de Cajas Rurales, son las siguientes: 
 
-Actualmente operan en Honduras aproximadamente 2,092 Cajas Rurales, concentradas especialmente en los Deptos. de Francisco Morazán, Intibucá, La Paz y Santa Bárbara. Las Cajas tienen un promedio de 30 socios. 
+Actualmente operan en Honduras aproximadamente 2,092 Cajas Rurales, concentradas especialmente en los Deptos. de Francisco Morazán, Intibucá, La Paz y Santa Bárbara. Las Cajas tienen un promedio de 30 socios. 
 
-Las Cajas Rurales manejan fondos estimados en Lps. 20 millones2 .  
+Las Cajas Rurales manejan fondos estimados en Lps. 20 millones2 .  
 
 Se dedican a la captación de ahorros y ofrecen servicios de crédito a sus miembros y a la comunidad en general. Sin embargo, el 20% de las Cajas no ahorran, y el 28% registran mora en su cartera de créditos. El 31% de las Cajas tienen préstamos por menos de Lps. 5,000, y un porcentaje similar, presta montos entre Lps. 5,000 y 20,000. El 19% no registra créditos. El 72% de los créditos se orientan a la agricultura. El 56% de los créditos se resguardan con garantías hipotecarias, y el 42% con prendarias. La tasa de interés sobre los préstamos fluctúa entre 3% y 5% mensual. La mayoría presta a menos de seis meses. El 62% de las Cajas guardan los depósitos y saldos en efectivo en la casa de un socio. 
 
